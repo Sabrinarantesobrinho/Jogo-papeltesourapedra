@@ -1,1 +1,1 @@
-ttps://sabrinarantesobrinho.github.io/Jogo-papeltesourapedra/a
+https://sabrinarantesobrinho.github.io/Jogo-papeltesourapedra/
